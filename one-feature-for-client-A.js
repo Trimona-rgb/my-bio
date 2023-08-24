@@ -1,0 +1,1 @@
+//ketu vjen kodi per klientin A si shmebull
